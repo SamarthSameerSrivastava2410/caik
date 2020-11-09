@@ -1,1 +1,1 @@
-# caik
+Chocolate cake or chocolate gâteau (from French: gâteau au chocolat) is a cake flavored with melted chocolate, cocoa powder, or both.
